@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with machine learning and developing good quality software
 - 💬 Ask me about investments, business strategy, music/guitar, science, tech.   
 - 📫 How to reach me: juanpabloduqueo@gmail.co or duqueocj@oregonstate.edu
-- ⚡ Fun fact: I created, developed and sold a company
+- ⚡ Fun fact: I built, developed and sold a company
